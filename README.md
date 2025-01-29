@@ -6,4 +6,4 @@
 - **Suphasit Panvichien**
 - **Kai Shun John Lo**
 
-Our Github will be finalised by the 20th Jan as one of our group members has a Mitigating Circumstance
+Our Github will be finalised by the 3rd Feb as one of our group members has a Mitigating Circumstance
